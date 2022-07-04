@@ -26,11 +26,11 @@ I am able to find solutions to problems easily, abstract and generalize ideas, m
 
 I love to play and make video games, analyze and speculate how systems work, spend time with family and friends and bike long distances.
 
-# What are you doing right now?
+# What am I doing right now?
 
 Now I will dedicate my time on working on my own brand, working with companies by innovating ideas and working environments, manage my own video games studio and trying out new ideas that could be successful in the future.
 
-# Where can I get in touch with you?
+# Where can you to get in touch with me?
 
 Contact me at [bigeti.ethem@gmail.com](mailto://bigeti.ethem@gmail.com) and we can talk about anything you want.
 
