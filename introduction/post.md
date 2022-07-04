@@ -30,7 +30,7 @@ I love to play and make video games, analyze and speculate how systems work, spe
 
 Now I will dedicate my time on working on my own brand, working with companies by innovating ideas and working environments, manage my own video games studio and trying out new ideas that could be successful in the future.
 
-# Where can you to get in touch with me?
+# Where can you get in touch with me?
 
 Contact me at [bigeti.ethem@gmail.com](mailto://bigeti.ethem@gmail.com) and we can talk about anything you want.
 
