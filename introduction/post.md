@@ -10,7 +10,7 @@ My name is Ethem Kurt, born at 9th May 1993 and I am from Erkelenz, Germany.
 
 Now I am residing in Alicante, Spain with my future wife Kátheryn.
 
-# Do we have any plans for our life?
+# Do we have any plans for our future?
 
 Our plans are to work hard for our common goals to achieve a good life for atleast both of us.
 
