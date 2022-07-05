@@ -32,6 +32,6 @@ Now I will dedicate my time on working on my own brand, working with companies b
 
 # Where can you get in touch with me?
 
-Contact me at [bigeti.ethem@gmail.com](mailto://bigeti.ethem@gmail.com) and we can talk about anything you want.
+Contact me at [bigeti.ethem@gmail.com](mailto:bigeti.ethem@gmail.com) and we can talk about anything you want.
 
 Thank you for taking your time to read, and see you next time!
